@@ -1,4 +1,0 @@
-Rasbeanjelly
-============
-
-Rasbeanjelly Korean Resource
